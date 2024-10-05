@@ -10,4 +10,10 @@ I will be learning about how to become confident in developing web pages and wil
 VVVVVVVVVVVVVVVVVVVVVVVV
 
 I am hoping to have future projects that I build here to showcase my current skills and capabilities. 
- 
+
+
+ Thank you all of you for taking the time to read this and learn a bit about my profile. I hope we all grow together in our fields and become what we always dreamed to be. 
+
+ :)))
+
+
