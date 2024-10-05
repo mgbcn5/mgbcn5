@@ -7,7 +7,6 @@ The course that will be primarily featured here that I am enrolled in is Web Com
 I will be learning about how to become confident in developing web pages and will be going in-depth about all of the languages and scripting skills needed to get a website working properly.
 
 ## WHAT YOU WILL FIND HERE
-##VVVVVVVVVVVVVVVVVVVVVVVV
 
 I am hoping to have future projects that I build here to showcase my current skills and capabilities. 
 
